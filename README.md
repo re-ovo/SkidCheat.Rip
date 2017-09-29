@@ -4,5 +4,3 @@ rip skidcheat.rip and anti.skid :v
 (anticheat.rip and anti.pro leak)
 
 ## Twins get brutally FUCKED by Dutch man
-
-thanks fyu x
